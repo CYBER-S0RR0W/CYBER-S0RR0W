@@ -12,9 +12,8 @@ so me core
 
 - i honestly have a lot of *names* (**lennox / len**, **kaizen / kai**, ***rinnie - rinne / rin***, ***Kyusaku / Kyu, koi***) .. but if ur a *green name*, you can call me *anything* you like! **i love nicknames**
 - 4*teen* , **iwec** 18+ (***wont hesitate to block immediately***.)
-- i'm a *cuddle comf* person, *please* tell me if you *dont* like *it*
-- [basic **dni** criteria](https://dni-criteria.carrd.co) .
-- im a *HUGEEE* anime, games, novels and manhwas *fan*
+- [basic **dni** criteria](https://dni-criteria.carrd.co) 
+- ***sorry if i ignore you, i have avoidant issues.***
   
 
 
