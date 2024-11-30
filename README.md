@@ -14,7 +14,7 @@ so me core
 - 4*teen* , **iwec** 18+ (***wont hesitate to block immediately if got uncomf or knew***.)
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 - ***sorry if i ignore you, i have avoidant issues.***
-- *kins* *(those could be different Terminology.)* : Logos (Arknights) - Nikolai (Bsd) - Kaiden (Saiki k) - Shoyo Hinata (Haikyuu)    - Victor (Yuri on ice) - Agape (Shtdn) - Maeno (Zeno remake)
+- *kins* *(those could be different Terminology.)* : Logos (Arknights) - Nikolai (Bsd) - Kaiden (Saiki k) - Shoyo Hinata (Haikyuu)    - Victor (Yuri on ice) - Agape (Shtdn) - Maeno (Zeno remake) - Dewey (Alienstage) - + More, talk to me about it <3
   
 
 
