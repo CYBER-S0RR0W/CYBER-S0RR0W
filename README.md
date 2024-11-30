@@ -10,8 +10,8 @@ fighting that urge sighs
 so me core
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ![IMG_5802](https://github.com/user-attachments/assets/a9f147b7-1b25-4b36-8823-e5606a63998a)
 
-- i honestly have a lot of *names* (**lennox / len**, **kaizen / kai**, ***rinnie - rinne / rin***, ***Kyusaku / Kyu, koi***) .. but if ur a *green name*, you can call me *anything* you like! **i love nicknames**
-- 4*teen* , **iwec** 18+ (***wont hesitate to block immediately***.)
+- i honestly have a lot of *names* (I have a lot of names, my most comfort going on with are **Kyusaku - Rinne / Rinnie - Koi - lennox**,  or ***just call me by my syns, copinglinks, hearttypes , and kins***.) .. but if ur a *green name*, you can call me *anything* you like! **i love nicknames**
+- 4*teen* , **iwec** 18+ (***wont hesitate to block immediately if got uncomf or knew***.)
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 - ***sorry if i ignore you, i have avoidant issues.***
   
