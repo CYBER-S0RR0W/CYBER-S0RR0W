@@ -10,18 +10,19 @@ fighting that urge sighs
 so me core
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ![IMG_5802](https://github.com/user-attachments/assets/a9f147b7-1b25-4b36-8823-e5606a63998a)
 
-- i honestly have a lot of *names* (I have a lot of names, my most comfort going on with are **Kyusaku - Rinne / Rinnie - Koi - Cupid - lennox**,  or ***just call me by my syns, copinglinks, hearttypes , and kins***.) .. but if ur a *green name*, you can call me *anything* you like! **i love nicknames**
+- i honestly have a lot of *names* (I have a lot of names, my most comfort going on with are **Kyusaku - Rinne / Rinnie - Koi - Cupid - lennox***.) .. but if ur a *green name*, you can call me *anything* you like! **i love nicknames**
 - 4*teen* , **iwec** 18+ (***wont hesitate to block immediately if got uncomf or knew***.)
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 - ***sorry if i ignore you, i have avoidant issues.***
-- *kins* *(those could be different Terminology.)* : Logos (Arknights) - Kaworu Nagisa (Eva) - Nikolai (Bsd) - Kaiden (Saiki k) - Shoyo Hinata (Haikyuu)    - Victor (Yuri on ice) - Agape (Shtdn) - Maeno (Zeno remake) - Dewey (Alienstage) - + More, talk to me about it <3
-  
+
 
 
 ![Untitled4_20241123205500](https://github.com/user-attachments/assets/d84e0e76-115e-4edf-b9ff-eb7b92c4e3da)
  [atabook!](https://callmeyourangel.atabook.org/)
 ||
 [rentrospring](https://retrospring.net/@lennxoxp)
+|| 
+[colr my tree!][https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S]
 
 ![Untitled4_20241123205515](https://github.com/user-attachments/assets/4f064217-96b9-49a2-b1ff-159398be5e60)
 
