@@ -13,7 +13,6 @@ so me core
 - My names : ***Kaizen*, lennox, *kyusaku*, *soda*, koi, *vincent*, zen, levi, Xander, *cyber***. and more whatsoever, i like nicknames. *<3*
 - 4*teen* , **iwec** 18+ (***wont hesitate to block immediately if got uncomf or knew***.)
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
-- ***sorry if i ignore you, i have avoidant issues.***
 
 
 
@@ -27,8 +26,6 @@ so me core
 ![Untitled4_20241123205515](https://github.com/user-attachments/assets/4f064217-96b9-49a2-b1ff-159398be5e60)
 
 [support gaza!](https://rentry.co/hearts4gaza)
-||
-[rentry ^_^](https://rentry.co/rinniz)
 ||
 [shared rentry with sol :3](https://rentry.co/sharedbetweengays)
 ||
