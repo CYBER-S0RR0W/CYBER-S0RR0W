@@ -10,7 +10,7 @@ fighting that urge sighs
 so me core
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ![IMG_5802](https://github.com/user-attachments/assets/a9f147b7-1b25-4b36-8823-e5606a63998a)
 
-- My names : Kaizen, lennox, kyusaku, soda, koi, vincent, zen, levi, and more whatsoever, i like nicknames. *<3*
+- My names : ***Kaizen*, lennox, *kyusaku*, *soda*, koi, *vincent*, zen, levi, Xander, *cyber***. and more whatsoever, i like nicknames. *<3*
 - 4*teen* , **iwec** 18+ (***wont hesitate to block immediately if got uncomf or knew***.)
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 - ***sorry if i ignore you, i have avoidant issues.***
