@@ -22,7 +22,7 @@ so me core
 ||
 [rentrospring](https://retrospring.net/@lennxoxp)
 || 
-[colr my tree!][https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S]
+[color my tree!](https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S)
 
 ![Untitled4_20241123205515](https://github.com/user-attachments/assets/4f064217-96b9-49a2-b1ff-159398be5e60)
 
