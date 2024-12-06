@@ -1,6 +1,6 @@
-i'm not changing my pfp till that twink comes back :/
+my mental health state is rapidly deteriorating please be careful.
 
-fighting that urge sighs
+i tend to distance myself. alot. i get uncomfortable alot at times, this is all natural idk y i dont like it.
 
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![IMG_5808](https://github.com/user-attachments/assets/aa75d245-4e45-4b4b-bc25-2246f4b5c0cd)
