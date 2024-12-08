@@ -22,6 +22,8 @@ so me core
 [rentrospring](https://retrospring.net/@lennxoxp)
 || 
 [color my tree!](https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S)
+||
+[my wall of text :3](https://walloftext.co/gay-men-at-your-area)
 
 ![Untitled4_20241123205515](https://github.com/user-attachments/assets/4f064217-96b9-49a2-b1ff-159398be5e60)
 
