@@ -1,6 +1,4 @@
-my mental health state is rapidly deteriorating please be careful.
-
-i tend to distance myself. alot. i get uncomfortable alot at times, this is all natural idk y i dont like it.
+meow.
 
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![IMG_5808](https://github.com/user-attachments/assets/aa75d245-4e45-4b4b-bc25-2246f4b5c0cd)
