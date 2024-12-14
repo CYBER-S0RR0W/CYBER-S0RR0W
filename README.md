@@ -16,8 +16,6 @@ so me core
 
 ![Untitled4_20241123205500](https://github.com/user-attachments/assets/d84e0e76-115e-4edf-b9ff-eb7b92c4e3da)
  [atabook!](https://callmeyourangel.atabook.org/)
-||
-[rentrospring](https://retrospring.net/@lennxoxp)
 || 
 [color my tree!](https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S)
 ||
